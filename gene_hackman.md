@@ -1,4 +1,4 @@
-# A biography of the Actor Gene Heeckman
+# A biography of the Actor Gene Hackman
 =====
 ## Awards
 * 2002 - The Royal Tenenbaums - Golden Globe -  Best Actor
